@@ -1,5 +1,4 @@
 # I AM CRANSSBUCLE
----
 
 * **I like to create cool shit.**
 * I don't like to be told what to do
