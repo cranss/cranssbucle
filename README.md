@@ -11,7 +11,7 @@
 
 ## My links
 
-[Twitter @CRANSSBUCLE](https://twitter.com/CRANSSBUCLE/)
-[Web Cristian.Salin.as](https://Cristian.Salin.as)
+- [Twitter: @CRANSSBUCLE](https://twitter.com/CRANSSBUCLE/)
+- [Cristian.Salin.as](https://Cristian.Salin.as)
 
 That's it, have a good one.
