@@ -1,6 +1,6 @@
 # I AM CRANSSBUCLE
 
-* **I like to create cool stuff.**
+* **I live to create cool stuff.**
 * I don't like to be told what to do
 * Not **Front-End** or **Back-End**, I'm **Full-Slack** 
 * I collect niche stuff from the internet
