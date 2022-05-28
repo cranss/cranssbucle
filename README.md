@@ -1,12 +1,12 @@
 # I AM CRANSSBUCLE
 
-* **I like to create cool shit.**
+* **I like to create cool stuff.**
 * I don't like to be told what to do
-* I'm not **Front-End** or **Back-End**, I'm **Full-Slack** (yes, I did not mistyped that)
-* I collect weird and niche stuff from the internet
-* I love freedom to the point of going full chaotic
-* I'd love to be an anarchist
-* I have a cat and I love her
+* Not **Front-End** or **Back-End**, I'm **Full-Slack** 
+* I collect niche stuff from the internet
+* Too much of a free soul, perhaps chaotic
+* An anarchist in my playlist, a bureaucrat in life
+* I love my cat
 
 ## My links
 
