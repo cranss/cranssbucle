@@ -2,7 +2,7 @@
 
 * **I live to create cool stuff.**
 * I don't like to be told what to do
-* Not **Front-End** or **Back-End**, I'm **Full-Slack** 
+* Not **Front-End** or **Back-End**, I'm **Full-Slack*** 
 * I collect niche stuff from the internet
 * Too much of a free soul, perhaps chaotic
 * An anarchist in my playlist, a bureaucrat in life
