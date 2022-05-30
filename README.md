@@ -6,7 +6,7 @@
 * Collects niche stuff from the internet, like weird memes and random textfiles about phreaking or UFO philosophy
 * Too much of a free soul, perhaps chaotic
 * An anarchist in my playlist, a bureaucrat in life
-* Loves cats morre than dogs, but both more than people
+* Loves cats more than dogs, but both more than people
 * Owner of a plethora of defunct communities about the nerdiest things
 * One of the smartest layman
 * Wiseman in terms of internet history, completely unaware of historic events before WWII
