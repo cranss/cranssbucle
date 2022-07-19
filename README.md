@@ -4,7 +4,6 @@
 * Doesn't like to be told what to do
 * Not **Front-End** or **Back-End**, but **Full-Slack*** 
 * Collects niche stuff from the internet, like weird memes and random textfiles about phreaking or UFO philosophy
-* Too much of a free soul, perhaps chaotic
 * An anarchist in the playlist, a bureaucrat in life
 * Loves cats more than dogs, and both more than people
 * Owner of a plethora of defunct communities about the nerdiest things
