@@ -13,7 +13,7 @@
 
 *Not a typo, it's slack.
 
-## Links to contact
+## Still looking to contact me?
 
 - [Twitter: @CRANSSBUCLE](https://twitter.com/CRANSSBUCLE/)
 - [Cristian.Salin.as](https://Cristian.Salin.as)
