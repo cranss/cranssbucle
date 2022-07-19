@@ -7,8 +7,7 @@
 * An anarchist in the playlist, a bureaucrat in life
 * Loves cats more than dogs, and both more than people
 * Owner of a plethora of defunct communities about the nerdiest things
-* One of the smartest layman
-* Wiseman in terms of internet history, completely unaware of historic events before WWII
+* Very knowledgable on internet lore, completely unaware of historic events before WWII
 * Gets too angry at multiplayer games
 
 
