@@ -15,7 +15,7 @@
 
 ## Still looking to contact me?
 
-- [Twitter: @CRANSSBUCLE](https://twitter.com/CRANSSBUCLE/)
+- [Twitter: @CRANSSBUCLE](https://twitter.com/cranssbucle/)
 - [Cristian.Salin.as](https://Cristian.Salin.as)
 
 That's it, have a good one.
