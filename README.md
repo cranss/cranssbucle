@@ -1,4 +1,4 @@
-# Cranssbucle
+# Cranssbucle's directives
 
 * **Wants to make cool stuff.**
 * Doesn't like to be told what to do
@@ -10,12 +10,11 @@
 * Very knowledgable on internet lore, completely unaware of historic events before WWII
 * Gets too angry at multiplayer games
 
+*Not a typo, it's slack, because it's a joke.
 
-*Not a typo, it's slack.
-
-## Still looking to contact me?
+## Further information
 
 - [Twitter: @cranssbucle](https://twitter.com/cranssbucle/)
 - [Cristian.Salin.as](https://Cristian.Salin.as)
 
-That's it, have a good one.
+Thanks for your visit.
