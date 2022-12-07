@@ -15,6 +15,6 @@
 ## Further information
 
 - [Twitter: @cranssbucle](https://twitter.com/cranssbucle/)
-- [Cristian.Salin.as](https://Cristian.Salin.as)
+- [Cristián.Salin.as](https://Cristián.Salin.as)
 
 Thanks for your visit.
